@@ -1,2 +1,2 @@
 # Ogol
-Tya Ogol
+Taya Ogol
